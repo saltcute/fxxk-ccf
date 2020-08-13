@@ -1,4 +1,4 @@
-## Fxxk CCF
+## fuckc.cf
 
 [fuckc.cf](https://fuckc.cf) 是对CCF及其深刻罪行的控诉
 
